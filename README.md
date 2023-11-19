@@ -1,0 +1,5 @@
+- 👋 Hi, I’m a stranger
+- 👀 I’m interested in strange things
+- 🌱 I’m currently learning the way of strange
+- 💞️ I’m looking to collaborate on strangers
+- 📫 How to reach me, randomly say hi to strangers
